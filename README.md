@@ -28,9 +28,11 @@ I enjoy building projects, experimenting with data, and continuously improving m
   *Lovely Professional University, Punjab*
 
 - **Class 12 (PCM)** – **84.4%**
+  
   *Dronacharya Senior Secondary School, Mubarikpur Jhajjar, Haryana*
   
 - **Class 10** – **81%**
+
   *Dronacharya Senior Secondary School, Mubarikpur Jhajjar, Haryana*
 ---
 
